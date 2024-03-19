@@ -1,6 +1,11 @@
 # EpicGames
 Information and links about anything Epic Games since Verse is completely dependent on the success of the company 
 
+# Partnerships of the MetaVerse
+
+Fortnite is winning the metaverse - Epic’s new partnership with Disney is just one more step in building out its virtual realm. https://www.theverge.com/24065901/fortnite-metaverse-disney-epic-partnership 
+
+
 # Ref
 
 - https://en.wikipedia.org/wiki/Epic_Games
