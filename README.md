@@ -15,6 +15,7 @@ Fortnite is winning the metaverse - Epic’s new partnership with Disney is just
 
 - Tim Sweeney 51.4%  https://en.wikipedia.org/wiki/Tim_Sweeney_(game_developer)
 - Tencent 40%  https://en.wikipedia.org/wiki/Tencent
+- Disney 9% https://en.wikipedia.org/wiki/The_Walt_Disney_Company
 - Sony 5.4%  https://en.wikipedia.org/wiki/Sony
 - Kirkbi (LEGO) 3.2%  https://en.wikipedia.org/wiki/Kirkbi
 
