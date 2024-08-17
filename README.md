@@ -43,6 +43,25 @@ Disney had previously announced a $1.5 billion equity investment in Epic Games. 
 
 “This is what Disney needed tonight - a big, emotional win with its biggest fans. The next step is to amplify that excitement to draw in casual fans and occasional visitors. That’s Disney’s next challenge, going forward,” Niles said.
 
+## D23 Disney x Fortnite
+
+New season, skins, more https://www.gameshub.com/news/news/d23-disney-marvel-fortnite-season-skins-2644054/
+At D23 2024, the first part of Disney’s collaboration with Epic Games was revealed, in the form of new skins, weapons, and seasonal content for Fortnite. While there’s likely much more to come from Disney’s investment, there was plenty revealed as part of this early showing. Fortnite: Chapter 5 Season 4 is subtitled “Absolute Doom” and it will be headlined by Fantastic Four villain, Doctor Doom. Across seasonal battles, players will team up to fight against Doom and his forces, or join him as a villain. As part of this event, there will be a range of Marvel-themed skins to unlock on a Battle Pass, including:
+
+- Shuri as Black Panther
+- Fortnite‘s Jonesy as Captain America
+- Emma Frost
+- Gwenpool
+- Peely as Wolverine (aka Peelverine)
+- War Machine
+- Mysterio
+- Doctor Doom (arriving later in September)
+- Meowscles as Sabretooth
+- Fishstick as Deadpool (aka Fishpool)
+
+
+
+
 # Misc
 
 - https://store.epicgames.com/en-US/news
